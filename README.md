@@ -674,5 +674,3 @@ https://drive.google.com/file/d/1FPi-JuOda1cEbC4XNaDjOBrB4t9GtKWs/view?usp=drive
 طبعا كل المواتر من مواقع وسيرفرات مونها نود لاند وسيرفرات ديسكورد وفيه سيرفرات نسيت اسمها ولا كان حطيت حقوقها🤍
 
 وبس انتضرو التحديثات
-
-
